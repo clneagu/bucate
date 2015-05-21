@@ -13,5 +13,10 @@
 -  60g zahăr
 - fructe după gust
 
-## Înghețată de cacao
-- ?!
+## Înghețată de OREO
+- 300g frisca
+- 100g iaurt
+-  60g zahăr
+- OREO original
+  - 4 cercuri in blender
+  - 4 cercuri pisate, puse la sfârșit și amestecate
