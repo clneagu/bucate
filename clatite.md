@@ -5,7 +5,7 @@
 
 ## Ingrediente
 - 1l de lapte
-- 400g de faina
+- 400g de faina (600g pentru waffe)
 - 4 oua
 - 4 linguri de ulei
 - 2 lingurițe sare
