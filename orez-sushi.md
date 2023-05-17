@@ -1,4 +1,4 @@
-i# Rețetă Orez pentru Sushi
+# Rețetă Orez pentru Sushi (~2-3 porții)
 
 **Ingrediente:**
 - 250g orez pentru sushi (orez cu bob scurt)
