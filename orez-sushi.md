@@ -49,3 +49,30 @@
 **Sfat:** Pentru a evita ca orezul să se usuce, acoperiți-l cu un șervet umed dacă nu îl 
 folosiți imediat.
 
+
+
+# Rețetă Simplificată
+
+**Ingrediente:**
+- 250g orez pentru sushi
+- 330ml apă
+- 40ml oțet de orez
+- 2 lingurițe zahăr
+- 1/2 linguriță sare
+
+**Instrucțiuni:**
+
+1. Spală orezul sub jet de apă rece până când apa devine clară. Scurge bine.
+
+2. Pune orezul și apa într-o oală cu capac. Lasă orezul să se înmoaie în apă timp de 30 de minute.
+
+3. Pune oala la fiert cu capacul pus. Când apa începe să fiarbă, reduce focul la minim și lasă orezul să fiarbă timp de 15 minute.
+
+4. Închide focul și lasă orezul să se aburească timp de 10 minute, cu capacul pus.
+
+5. Într-un bol mic, amestecă oțetul de orez, zahărul și sarea. Încălzește amestecul la microunde sau pe aragaz până când zahărul și sarea se dizolvă.
+
+6. Transferă orezul într-un bol mare și împrăștie peste el amestecul de oțet. Folosind o spatulă, amestecă orezul încet pentru a-l răci și a-l acoperi cu amestecul de oțet.
+
+7. Lasă orezul să se răcească înainte de a-l folosi pentru sushi.
+
